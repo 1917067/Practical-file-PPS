@@ -19,8 +19,8 @@
                                                    
                                                    
                                                    
-    Submitted to :- Ms. Ranjodh Kaur                                                  Submitted By:- Ramandeep Singh
-                                                                                                      [URN- 1905255] 
+      Submitted to :- Ms. Ranjodh Kaur                                                Submitted By:- Ramandeep Singh
+                                                                                                     [URN- 1905255] 
                                                                                                               
                                                    
                                                    
